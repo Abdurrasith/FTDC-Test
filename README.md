@@ -1,7 +1,2 @@
 # FTDC-Test
-zidane
-
-Ikhsan
-
-Rega
-
+halo semuanya hehe
